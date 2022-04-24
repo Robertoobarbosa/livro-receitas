@@ -8,5 +8,13 @@ para fazer um bom bolo de cenoura, você vai precisar de:
 
 ### 1 xícara de trigo
 
+- sal
+- óleo
+- açúcar
+
+**m**
+
+_ppp_
+
 
 
